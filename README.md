@@ -1,0 +1,1 @@
+# calculadora-blue-research
